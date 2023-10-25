@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sklvlj
+- 👋 Hi, I’m vicor
 - 👀 I’m interested in games
 - 🌱 I’m currently learning cars
 - 💞️ I’m looking to collaborate on ...
